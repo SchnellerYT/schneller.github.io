@@ -1,1 +1,1 @@
-# schneller.github.io
+# schnelleryt.github.io
